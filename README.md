@@ -36,10 +36,13 @@ Starter kombucha: 2 cups of kombucha from previous batch to lower pH to kickstar
 **Instructions**
 1. Brew the Concentrate: Bring about 4-6 cups of water to a boil. Remove from heat.
 2. Steep the Tea: Add the 12 tea bags to the hot water. Cover the pot. Let steep for 15-20 minutes. Remove the tea bags.
-3. Dissolve the Sugar: Add the 1.75 cups of sugar and stir until it is completely dissolved. This creates your sweet tea concentrate.
-4. Wait for the sweet tea concentrate to come to room temperature. Usually takes 5+ hours. Just feel the pot, if it doesn't feel warm anymore, you are good to go!
-5. Add the room temperature SCOBY and starter kombucha into the beverage dispensor. Add the room temperature sweet tea concentrate into the beverage dispenser as well
-6. Cover: Cover the mouth of the vessel with a coffee filter secured with a rubber band. This allows airflow but keeps out dust and pests. Store the dispenser away from natural/artificial light (inside a kitchen cabinet for example). Kombucha likes a dark, room temperature environment to do it's thing. And you are done! You are ready to proceed to second fermentation (F2) where you get to flavour and carbonate your kombucha.
+  
+**Pro tip: Typical tea bags are made of plastic/paper composites and have been known to release microplastics when exposed to hot water. Instead, empty the tea into paper filter bags and use that to hold in the tea instead of the off-the-shelf tea bags.**
+  
+6. Dissolve the Sugar: Add the 1.75 cups of sugar and stir until it is completely dissolved. This creates your sweet tea concentrate.
+7. Wait for the sweet tea concentrate to come to room temperature. Usually takes 5+ hours. Just feel the pot, if it doesn't feel warm anymore, you are good to go!
+8. Add the room temperature SCOBY and starter kombucha into the beverage dispensor. Add the room temperature sweet tea concentrate into the beverage dispenser as well
+9. Cover: Cover the mouth of the vessel with a coffee filter secured with a rubber band. This allows airflow but keeps out dust and pests. Store the dispenser away from natural/artificial light (inside a kitchen cabinet for example). Kombucha likes a dark, room temperature environment to do it's thing. And you are done! You are ready to proceed to second fermentation (F2) where you get to flavour and carbonate your kombucha.
  
 
 
