@@ -36,8 +36,7 @@ Starter kombucha: 2 cups of kombucha from previous batch to lower pH to kickstar
 **Instructions**
 1. Brew the Concentrate: Bring about 4-6 cups of water to a boil. Remove from heat.
 2. Steep the Tea: Add the 12 tea bags to the hot water. Cover the pot. Let steep for 15-20 minutes. Remove the tea bags.
-  
-**Pro tip: Typical tea bags are made of plastic/paper composites and have been known to release microplastics when exposed to hot water. Instead, empty the tea into paper filter bags and use that to hold in the tea instead of the off-the-shelf tea bags.**
+  Pro tip: Typical tea bags are made of plastic/paper composites and have been known to release microplastics when exposed to hot water. Instead, empty the tea into paper filter bags and use that to hold in the tea instead of the off-the-shelf tea bags.**
   
 6. Dissolve the Sugar: Add the 1.75 cups of sugar and stir until it is completely dissolved. This creates your sweet tea concentrate.
 7. Wait for the sweet tea concentrate to come to room temperature. Usually takes 5+ hours. Just feel the pot, if it doesn't feel warm anymore, you are good to go!
