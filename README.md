@@ -2,7 +2,7 @@
 
 Welcome to the magical pub and inn of the witches and wizards - The Leaky Cauldron! 
 
-Sometimes, things are good the simple and ol' fashioned way. This page shows how you can brew your own kombucha the Muggle way, without any wands.
+Sometimes, things are good the ol' fashioned way. This page shows how you can brew your own kombucha the Muggle way, without any wands.
 
 🍵 Kombucha Brewing Recipe (1 Gallon)
 
