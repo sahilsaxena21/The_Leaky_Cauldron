@@ -3,8 +3,10 @@
 Add the following into the fermentation glass bottle:
 
 **Ginger**: 1 tsp, grated or finely diced	1/2 tsp (use less if dry/powdered)
-**Turmeric**: 1/2 tsp, grated or finely diced	1/4 tsp (use less if dry/powdered)	Adds deep color and earthy flavor.
-**Black Pepper**: 5-7 whole peppercorns, slightly crushed	Pinch (approx. 1/16 tsp)	Helps with curcumin absorption; don't skip!
+
+**Turmeric**: 1/2 tsp, grated or finely diced	1/4 tsp (use less if dry/powdered)
+
+**Black Pepper**: 5-7 whole peppercorns, slightly crushed	Pinch (approx. 1/16 tsp)
 
 
 **Instructions**
