@@ -11,6 +11,7 @@ Sometimes, things are good the ol' fashioned way. This page shows how you can br
 The goal of F1 is to turn your sweet tea into raw kombucha using the SCOBY (Symbiotic Culture Of Bacteria and Yeast).
 
 **Ingredients**
+
 Water: 1 gallon (approx. 3.78 liters)
 
 Tea: 12 standard tea bags (black, green, or a combination. Avoid tea bags with any added flavourings. Any flavourings in F1 impedes the fermentation process. As long as the ingredients contains just your black/green tea, you are good.)
@@ -24,8 +25,11 @@ Starter kombucha: 2 cups of kombucha from previous batch to lower pH to kickstar
 
 **Materials**
 1 pot big enough for boiling 6+ cups of water
+
 1 clean utensil for stirring in the sugar
+
 1 rubber band
+
 1 coffee filter
 
 **Instructions**
