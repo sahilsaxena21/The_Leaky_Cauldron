@@ -25,8 +25,8 @@ Add the following into the fermentation glass bottle:
 
 7. Fill Bottles: Pour the raw kombucha from F1 into the bottles, leaving about an inch or two of headspace at the top.
 
-8. Seal and Carbonate: Tightly seal the bottles. Place them back in a warm, dark spot for 2 to 5 days to build carbonation.
+8. Seal and Carbonate: Tightly seal the bottles. Place them back in a warm, dark spot for 2-5 days to build carbonation.
 
-9. Burping (Optional but Recommended): In the first 2-3 days, you may need to "burp" the bottles once a day by briefly opening and closing the cap to release excess pressure and prevent potential bottle explosions.
+9. Burping: "Burp" the bottles once a day 2-5 days mark by briefly opening and closing the cap to release excess pressure and prevent potential pressure build-up which can lead to bottle explosions (Ees, i know it's important!).
 
-10. Chill and Enjoy: Once the desired carbonation level is reached, transfer the sealed bottles to the refrigerator. Chilling stops the fermentation process. Enjoy the carbonated, flavored kombucha!
+10. Chill and Enjoy: Once the desired carbonation level is reached, transfer the sealed bottles to the refrigerator. Chilling halts the fermentation process. Enjoy the carbonated, flavored kombucha!
