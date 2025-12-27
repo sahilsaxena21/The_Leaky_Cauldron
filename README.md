@@ -24,6 +24,7 @@ SCOBY: 1 healthy SCOBY (Symbiotic Culture Of Bacteria and Yeast) at room tempera
 Starter kombucha: 2 cups of kombucha from previous batch to lower pH to kickstart fermentation process
 
 **Materials**
+
 1 pot big enough for boiling 6+ cups of water
 
 1 clean utensil for stirring in the sugar
