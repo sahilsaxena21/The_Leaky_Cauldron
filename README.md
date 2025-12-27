@@ -18,22 +18,19 @@ Starter Tea: 2 cups of plain, unflavored, raw kombucha from a previous batch or 
 SCOBY: 1 healthy SCOBY (Symbiotic Culture Of Bacteria and Yeast) at room temperature
 Starter kombucha: 2 cups of kombucha from previous batch to lower pH to kickstart fermentation process
 
-**Pots/Pans**
-1 pot big enough for 6+ cups of water for boiling.
-1 clean utensil for stirring the sugar into
+**Materials**
+1 pot big enough for boiling 6+ cups of water
+1 clean utensil for stirring in the sugar
+1 rubber band
+1 coffee filter
 
 **Instructions**
 1. Brew the Concentrate: Bring about 4-6 cups of water to a boil. Remove from heat.
 2. Steep the Tea: Add the 12 tea bags to the hot water. Cover the pot. Let steep for 15-20 minutes. Remove the tea bags.
 3. Dissolve the Sugar: Add the 1.75 cups of sugar and stir until it is completely dissolved. This creates your sweet tea concentrate.
 4. Wait for the sweet tea concentrate to come to room temperature. Usually takes 5+ hours. Just feel the pot, if it doesn't feel warm anymore, you are good to go!
-5. Pour the room temperature sweet tea concentrate into the dispensor
-6. Add SCOBY and starter kombucha: Gently add the SCOBY and the 2 cups of starter tea to the room-temperature sweet tea.
-7. Cover and Ferment: Cover the mouth of the vessel with a coffee filter secured with a rubber band. This allows airflow but keeps out dust and pests.
-8. 
-
-Pre Step
-
-1) 
+5. Add the room temperature SCOBY and starter kombucha into the beverage dispensor. Add the room temperature sweet tea concentrate into the beverage dispenser as well
+6. Cover: Cover the mouth of the vessel with a coffee filter secured with a rubber band. This allows airflow but keeps out dust and pests. Store the dispenser away from natural/artificial light (inside a kitchen cabinet for example). Kombucha likes a dark, room temperature environment to do it's thing. And you are done!
+ 
 
 
