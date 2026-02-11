@@ -42,6 +42,15 @@ Starter kombucha: 2 cups of kombucha from previous batch to lower pH to kickstar
 4. Wait for the sweet tea concentrate to come to room temperature. Usually takes 5+ hours. Just feel the pot, if it doesn't feel warm anymore, you are good to go!
 5. Add the room temperature SCOBY and starter kombucha into the beverage dispensor. Add the room temperature sweet tea concentrate into the beverage dispenser as well. Stir gently.
 6. Cover: Cover the mouth of the vessel with a coffee filter secured with a rubber band (e.g. by taking the paper coffee filter from the starter pack, and flipping it upside down). This allows airflow but keeps out dust and pests. Store the dispenser away from natural/artificial light (inside a kitchen cabinet for example). Kombucha likes a dark, room temperature environment to do it's thing. And you are done! You are ready to proceed to second fermentation (F2) where you get to flavour and carbonate your kombucha.
+
+
+**2. Second Fermentation (F2): Flavouring and Carbonation**
+
+**Video Instructions:**
+https://youtu.be/sCmTcY-Y8Gs?si=UXp0Gp-lqDk07lgQ
  
-
-
+**Key Points:**
+1. Make sure to 'burp' the bottle (i.e. release CO2 pressure inside bottle by opening the cap) once every 24 hours
+2. Only carbonate for 3 days max.
+3. Start with liquid flavourings (fruit juice, ginger juice, strained purée) as opposed to adding solid/whole food chunks inside bottle. Liquid-based flavourings infuse faster, ferment more evenly, and are easier to clean.
+4. Enjoy being creative with your flavourings! 
