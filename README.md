@@ -53,4 +53,4 @@ https://youtu.be/sCmTcY-Y8Gs?si=UXp0Gp-lqDk07lgQ
 1. Make sure to 'burp' the bottle (i.e. release CO2 pressure inside bottle by opening the cap) daily
 2. Only carbonate for 3 days max. at room temperature. Afterwhich, put the bottle inside your fridge ≤4 °C to slow yeast activity to near-dormant levels. You only need to 'burp' once every month in the fridge. As long as you don't leave a sealed bottle in the fridge for several months (like going on vaca), you are fine. 
 3. Start with liquid flavourings (fruit juice, ginger juice, strained purée) as opposed to adding solid/whole food chunks inside bottle. Liquid-based flavourings infuse faster, ferment more evenly, and are easier to clean.
-4. Enjoy being creative with your flavourings! 
+4. Experiment with your own unique flavours and enjoy being creative!
